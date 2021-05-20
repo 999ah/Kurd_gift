@@ -1,1 +1,0 @@
-# Kurd_gift
